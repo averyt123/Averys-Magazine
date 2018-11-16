@@ -1,1 +1,0 @@
-# Averys-Magazine
